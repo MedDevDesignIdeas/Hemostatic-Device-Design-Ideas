@@ -1,0 +1,1 @@
+This forum is a repository for medical device design ideas to face main challenges in hemostatic medical needs. A few Chatgpt generated design reports are attached for the greatest challenges. Please join the forum to give comments on them.
